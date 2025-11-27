@@ -1,1 +1,1 @@
-### Thingking Machine (grok)
+### Criticizing Machine (grok)
